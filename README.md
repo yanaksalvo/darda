@@ -1,1 +1,1 @@
-# Bunu anlamamak için otizmli sakat beyinsiz domdom özürlü (godgod) olmanız lazım.
+# You have to be autistic, crippled, brainless, disabled (dogdog) not to understand this.
